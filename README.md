@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @v0id138
+- 👋 Hi, I’m v0id or if you prefer my real name, Jakub.
 - 👀 I’m interested in anything that I consider cool.
 - 🌱 I’m currently studying physics.
 - 💞️ I'm looking the collaborate/add to any project that I'm a user of myself.
